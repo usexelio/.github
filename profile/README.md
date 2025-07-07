@@ -1,6 +1,6 @@
-## sms banking on chain 👀
+## sms banking onchain 👀
 
-🚢
+shipping soon 🚢
 
 <!--
 
